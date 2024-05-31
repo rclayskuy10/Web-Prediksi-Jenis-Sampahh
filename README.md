@@ -1,1 +1,1 @@
-# Web-Prediksi-Jenis-Sampahh
+# Web-Prediksi-Jenis-Sampah
